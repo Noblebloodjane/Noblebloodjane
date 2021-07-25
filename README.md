@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Noblebloodjane
-- 👀 I’m interested in becoming a full stack developer 
+- 👀 I’m a student interested in becoming a full stack developer 
 - 🌱 I’m learning things these things would be revealed in time
 - 💞️ I’m looking to collaborate with anyone 
 - 📫 You can contact me via email cakecombat@outlook.com 
