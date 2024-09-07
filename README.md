@@ -1,2 +1,1 @@
-# 💫 About Me:
-Currently Dead but cooking up something noice
+Hi, Welcome to my humble abode 
